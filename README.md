@@ -1,7 +1,3 @@
-new york wasted, start again, start again
-
-***
-
 very wary of everyone i talk to on this game, interact with caution<br>
 \+ i sb spamfollowers<br>
 
